@@ -6,7 +6,7 @@
 >
 > Hobbies:
 >
-> 1.  Watching Sports, ny Favourite is Rugby
+> 1.  Watching Sports, my Favourite is Rugby
 > 2.  Coding - All sorts of projects - mainly web design
 > 3.  Reading
 
